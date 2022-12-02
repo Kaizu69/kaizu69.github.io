@@ -1,0 +1,1 @@
+# kaizu69.github.io
